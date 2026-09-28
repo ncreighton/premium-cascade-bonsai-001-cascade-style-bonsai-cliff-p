@@ -1,0 +1,2 @@
+# premium-cascade-bonsai-001-cascade-style-bonsai-cliff-p
+Cascade bonsai artists spend hours scattered across multiple apps tracking species care, pot selections, and styling progress. The Cascade Style Bonsai &amp; Cliff Pot Craft Hub consolidates everything into one centralized Notion workspace designed specifically for cascade and cliff-style cultivation.  This template eliminates the fragmented workflow o
